@@ -6,7 +6,7 @@ Hello, this is one of my creation that i own for my server, like my last script 
 
 📎 - Over the checkpoint the bridge is a little destroyed and abandoned !
 
-DISCORD - https://discord.gg/XJrjmXc9hd ! For Support and Others !
+DISCORD - https://discord.gg/9XNBaQSmMd ! For Support and Others !
 
 BUY ME A COFFEE - https://paypal.me/sirecstudio
 
